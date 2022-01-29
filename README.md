@@ -12,3 +12,6 @@ https://www.twitch.tv/dench_osu
 
 # [funorange](https://dench.s-ul.eu/nbwyUzWv)
 ![screenshot058](https://user-images.githubusercontent.com/98576912/151501761-aca5983a-aa7d-4171-ac65-75fa524d62ba.jpg)
+
+#[seoulv10edit](https://dench.s-ul.eu/8SkDsA5J)
+![screenshot059](https://user-images.githubusercontent.com/98576912/151674388-f5f779f4-6785-43cd-be38-d6ab803f8439.jpg)
