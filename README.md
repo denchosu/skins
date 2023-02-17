@@ -15,3 +15,6 @@ https://www.twitch.tv/dench_osu
 
 # [seoulv10edit](https://dench.s-ul.eu/8SkDsA5J)
 ![screenshot059](https://user-images.githubusercontent.com/98576912/151674388-f5f779f4-6785-43cd-be38-d6ab803f8439.jpg)
+
+# [tooqiepetromostavchuk](https://tqe.s-ul.eu/uF9OBHtT)
+![screenshot060](https://cdn.discordapp.com/attachments/1053756488629370952/1076041947006894130/screenshot032.jpg)
