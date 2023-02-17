@@ -18,3 +18,12 @@ https://www.twitch.tv/dench_osu
 
 # [tooqiepetromostavchuk](https://tqe.s-ul.eu/uF9OBHtT)
 ![screenshot060](https://cdn.discordapp.com/attachments/1053756488629370952/1076041947006894130/screenshot032.jpg)
+
+# [mathi](https://skins.osuck.net/index.php?newsid=100)
+![screenshot061](https://i.imgur.com/FoIXXPL.png)
+
+# [shield](https://dench.s-ul.eu/s9DykmtX)
+![screenshot033](https://user-images.githubusercontent.com/98576912/219578636-fac682bd-482a-4274-a937-f9cc8845561b.jpg)
+
+# [whitecat](https://www.mediafire.com/file/yi882uubrssjf75/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.0_%257E_old-lite.osk/file)
+![screenshot034](https://user-images.githubusercontent.com/98576912/219579956-95de79e9-8099-4ea9-a43d-c3e566b98d11.jpg)
