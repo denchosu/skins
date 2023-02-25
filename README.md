@@ -27,3 +27,6 @@ https://www.twitch.tv/dench_osu
 
 # [whitecat](https://www.mediafire.com/file/yi882uubrssjf75/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.0_%257E_old-lite.osk/file)
 ![screenshot034](https://user-images.githubusercontent.com/98576912/219579956-95de79e9-8099-4ea9-a43d-c3e566b98d11.jpg)
+
+# [dench hd](https://dench.s-ul.eu/deoKVHn1)
+![image](https://user-images.githubusercontent.com/98576912/221373120-1639a4c6-8f09-4ba0-97d2-b3daaf7f94ce.png)
