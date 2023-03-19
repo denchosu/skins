@@ -30,3 +30,6 @@ https://www.twitch.tv/dench_osu
 
 # [dench hd](https://dench.s-ul.eu/deoKVHn1)
 ![image](https://user-images.githubusercontent.com/98576912/221373120-1639a4c6-8f09-4ba0-97d2-b3daaf7f94ce.png)
+
+# [roman+denys](https://dench.s-ul.eu/SVUUAZqg)
+![screenshot065](https://user-images.githubusercontent.com/98576912/226168868-6120497a-0dcd-4a21-9d1d-9a28c60430a9.jpg)
