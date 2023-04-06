@@ -33,3 +33,7 @@ https://www.twitch.tv/dench_osu
 
 # [roman+denys](https://dench.s-ul.eu/SVUUAZqg)
 ![screenshot065](https://user-images.githubusercontent.com/98576912/226168868-6120497a-0dcd-4a21-9d1d-9a28c60430a9.jpg)
+
+#[roman+denys(edit)](https://dench.s-ul.eu/OUx4phuW)
+![screenshot125](https://user-images.githubusercontent.com/98576912/230353447-2975d0ad-4424-4ad0-8534-14d670e9c3c5.jpg)
+
