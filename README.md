@@ -34,10 +34,18 @@ https://www.twitch.tv/dench_osu
 # [roman+denys](https://dench.s-ul.eu/SVUUAZqg)
 ![screenshot065](https://user-images.githubusercontent.com/98576912/226168868-6120497a-0dcd-4a21-9d1d-9a28c60430a9.jpg)
 
-#[roman+denys(edit)](https://dench.s-ul.eu/OUx4phuW)
+# [roman+denys(edit)](https://dench.s-ul.eu/OUx4phuW)
 ![screenshot125](https://user-images.githubusercontent.com/98576912/230353447-2975d0ad-4424-4ad0-8534-14d670e9c3c5.jpg)
 
-#[ryuk(dench_edit)](https://dench.s-ul.eu/N6yFzklb)
+# [ryuk(dench_edit)](https://dench.s-ul.eu/N6yFzklb)
 ![screenshot185](https://github.com/denchosu/skins/assets/98576912/10c90fd6-6742-4117-aa60-d1c708f34d30)
+
+# [bahamete](https://github.com/AwesomeNinjaDude324/AimPixel-s-Skins-/blob/master/README.md#---bahamete)
+![68747470733a2f2f692e696d6775722e636f6d2f634c4b346f63302e6a7067](https://github.com/denchosu/skins/assets/98576912/9f831165-d65b-429c-8ce8-191b92083511)
+
+# [dddx15dt](https://drive.google.com/u/0/uc?id=1afI6hxFPREJouKARnBm2ZHpbIpWhJeQO&export=download)
+![image](https://github.com/denchosu/skins/assets/98576912/b2f8b02f-4d8d-4ee0-87a8-b49b8d65bb72)
+
+
 
 
