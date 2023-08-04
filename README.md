@@ -46,6 +46,11 @@ https://www.twitch.tv/dench_osu
 # [dddx15dt](https://drive.google.com/u/0/uc?id=1afI6hxFPREJouKARnBm2ZHpbIpWhJeQO&export=download)
 ![image](https://github.com/denchosu/skins/assets/98576912/b2f8b02f-4d8d-4ee0-87a8-b49b8d65bb72)
 
+#[nm1 abuse](https://dench.s-ul.eu/iVSAdtE5)
+![screenshot330](https://github.com/denchosu/skins/assets/98576912/f4f29f96-4c8e-4b56-97f7-63dde2d77b49)
+
+
+
 # [tekkito+dench](https://dench.s-ul.eu/Z485ZhVN)
 ![screenshot329](https://github.com/denchosu/skins/assets/98576912/e726fa8c-c288-41a3-b172-d3314ec7c884)
 
