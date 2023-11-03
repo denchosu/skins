@@ -49,10 +49,11 @@ https://www.twitch.tv/dench_osu
 #[nm1 abuse](https://dench.s-ul.eu/iVSAdtE5)
 ![screenshot330](https://github.com/denchosu/skins/assets/98576912/f4f29f96-4c8e-4b56-97f7-63dde2d77b49)
 
-
-
 # [tekkito+dench](https://dench.s-ul.eu/Z485ZhVN)
 ![screenshot329](https://github.com/denchosu/skins/assets/98576912/e726fa8c-c288-41a3-b172-d3314ec7c884)
+
+# [kablazerino2019](https://dench.s-ul.eu/1Lo4xR7a)
+![screenshot039](https://github.com/denchosu/skins/assets/98576912/b8d790a1-fe0b-4662-b05e-2c9492c1a407)
 
 
 
