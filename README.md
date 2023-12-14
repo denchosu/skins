@@ -1,7 +1,8 @@
 # skins
 https://www.twitch.tv/dench_osu
 
-# [sharytory+ez](https://cdn.discordapp.com/attachments/754682746835697684/1184515539947749484/Azrulk_Mapping.osk?ex=658c410f&is=6579cc0f&hm=257e3202f158c1f4e468888746b0f8743f9fbd3ad2c6a169e31e655f8db4c871&)![image](https://github.com/denchosu/skins/assets/98576912/3db66fd3-3352-4351-81e0-a93852950e95)
+# [sharytoryez](https://cdn.discordapp.com/attachments/754682746835697684/1184515539947749484/Azrulk_Mapping.osk?ex=658c410f&is=6579cc0f&hm=257e3202f158c1f4e468888746b0f8743f9fbd3ad2c6a169e31e655f8db4c871&)
+![image](https://github.com/denchosu/skins/assets/98576912/3db66fd3-3352-4351-81e0-a93852950e95)
 
 # [rafis+404](https://dench.s-ul.eu/nQBzUBeb)
 ![https://dench.s-ul.eu/nQBzUBeb](https://user-images.githubusercontent.com/98576912/151499763-8fe5d21b-b7ae-4336-a7b7-477c71a254e0.jpg)
